@@ -6,14 +6,14 @@
 
 #### ♬ 香水檸檬脆啵啵 *She Likes Lemonade*
 
-Gung 作曲編曲；YF Studio 發行於 2021 年 7 月。
+Gung 作曲編曲；YF Studio 出品於 2021 年 7 月。
 
 [去 QQ 音樂聽](https://i.y.qq.com/v8/playsong.html?songmid=003y0vQB0b1vQE&ADTAG=myqq&from=myqq&channel=10007100)   
 
 
 #### ♬ 若不金鋒 *For Kingphone*
 
-Gung 作曲編曲；YF Studio 發行於 2021 年 1 月。
+Gung 作曲編曲；YF Studio 出品於 2021 年 1 月。
 
 [去 QQ 音樂聽](https://i.y.qq.com/v8/playsong.html?songmid=000cXLlb0j4jBQ&ADTAG=myqq&from=myqq&channel=10007100)  
 
